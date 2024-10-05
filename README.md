@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rromaa00@gmail.com**
 
-- ⚡ Fun fact **⚡ OurFamile I have a family of many people who help me as a family on the discord ! 𝐑𝐎𝐌𝐀𝐍𝐘 ♔.#2312**
+- ⚡ Fun fact **⚡ OurFamile I have a family of many people who help me as a family on the discord romany.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
